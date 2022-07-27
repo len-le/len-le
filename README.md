@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Len Le
+- 👀 I’m interested in mind stimulating activities that forces creativity.
+- 🌱 I’m currently learning how to become a more efficient programmer.
+- 📫 You can reach me at lenlethii@gmaail.com
